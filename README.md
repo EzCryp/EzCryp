@@ -7,7 +7,7 @@
 
 🤔 I’m looking for help with the above Programming language 
 
-💬 Ask me about my weather
+💬 Ask me about the weather
 
 📫 How to reach me: Follow me on Twitter and Instagram @Ezrock84
 
