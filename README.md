@@ -1,4 +1,4 @@
-### Hi there 👋 Ezra 👨🏻‍💻 here from 🇵🇭 PHL
+### Hi there 👋 Ezra 👨🏻‍💻 Zacarias here from 🇵🇭 PHL
 🚀 I’m currently working 🚧 on Myself 🥸🎓
 
 🌱 I’m currently learning Python 🐍 , JavaScript, HTML
