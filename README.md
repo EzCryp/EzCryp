@@ -1,7 +1,7 @@
 ### Hi there 👋 Ezra 👨🏻‍💻 Zacarias here from 🇵🇭 PHL
 🚀 I’m currently working 🚧 on Myself 🥸🎓
 
-🌱 I’m currently learning Python 🐍 , JavaScript, HTML
+🌱 I’m currently learning Python 🐍, JS, HTML, CSS
 
 🧑‍🤝‍🧑 I’m looking forward to collaborate with you.
 
