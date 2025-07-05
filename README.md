@@ -11,8 +11,6 @@
 
 📫 How to reach me: Follow me on Twitter and Instagram @Ezrock84
 
-😄 Pronouns: He / him
-
 ⚡ Fun fact: I'm a father or 2 boys 👦🏻, and a BM 🦮.
 
 <!--
